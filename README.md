@@ -1,0 +1,3 @@
+Hello! I'm Noam. I created all these hacks for you guys. If you want to know how to hack another game, please contact me and I will make hacks for that game. Now, you should know that it takes A LOT of research to make these hacks for you so please, if you like my hacks AND you have an account, PLEASE follow me? After you follow me, look at the upper corner of the screen and click on noam0718. Next, you will see all my amazing hacks! click on the one you want and wa-la! That game is not so boring anymore! Goodbye, and you're welcome.
+
+P.S. If you are wondering why i'm making these hacks, it's not because I want that game to fix it so it can't be hacked anymore like annoying people, but THE GAMES ARE SO BORING so I had to make them more FUN. That's why.
